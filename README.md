@@ -5,7 +5,7 @@
 5. What did they do? 
 6. Why did they do it?
 7. What did they say?
-8. What were they wearing?
+8. They were wearing swimsuits and sunglasses.
 9. How did they feel?
 10. What happened next?
 11. Who saw them?
