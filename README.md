@@ -1,4 +1,4 @@
-1. Who was involved?
+1. A duck
 2. With whom?
 3. Where?
 4. When?
