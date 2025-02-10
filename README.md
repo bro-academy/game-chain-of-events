@@ -4,6 +4,7 @@
 4. When?
 5. What did they do? 
 6. Why did they do it?
+It Was Compulosry To Bring Easeness To Community, So They Worked Hard.
 7. What did they say?
 8. What were they wearing?
 9. How did they feel?
