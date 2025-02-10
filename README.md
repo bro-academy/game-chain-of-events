@@ -1,7 +1,7 @@
 1. A duck
 2. With whom?
 3. Where?
-4. When?
+4. When ancient trees are lived
 5. They were jumping on the bed.
 6. Why did they do it?
 7. "Let's buy a rocket and fly to the moon!"
