@@ -3,7 +3,7 @@
 3. Tokyo
 4. When ancient trees are lived
 5. They were jumping on the bed.
-6. Why did they do it?
+6. It Was Compulosry To Bring Easeness To Community, So They Worked Hard.
 7. "Let's buy a rocket and fly to the moon!"
 8. They were wearing swimsuits and sunglasses.
 9. They felt exhuasted and very hungry.
