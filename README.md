@@ -6,5 +6,5 @@
 6. Why did they do it?
 7. What did they say?
 8. What were they wearing?
-9. How did they feel?
+9. So scared that they started praying to god
 10. What happened next?
