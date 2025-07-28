@@ -8,3 +8,4 @@
 8. cowboy boots
 9. So scared that they started praying to god
 10. Everybody after hard work went for a cold beer in Guaba.
+11. Oh my gooosh!
