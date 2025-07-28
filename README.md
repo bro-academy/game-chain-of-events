@@ -7,4 +7,4 @@
 7. What did they say?
 8. What were they wearing?
 9. So scared that they started praying to god
-10. What happened next?
+10. Everybody after hard work went for a cold beer in Guaba.
